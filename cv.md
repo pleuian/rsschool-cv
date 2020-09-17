@@ -1,4 +1,4 @@
-# Polina Barsukova
+## Polina Barsukova
 > Email: polina@hotmail.no\
 > Phone number: +79516469252
 
